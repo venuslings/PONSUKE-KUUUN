@@ -9,10 +9,12 @@
 ⚠️ WARNING !  IF YOU TYPE OF THESE THING THAT I TYPE, PLEASE DNI. DO NOT DISGUISE
 
 -- :: 🍀 , :: i unusually not have dni, but... i dni people that do diddy jokes or r@p£ jokes or my person that makes fun of my trigger/phobia.
-
+or sperm jokes.
 pdf and rape is serious, not supposed to be funny. 
 
 and please. i have triggers.
+
+and sperm jokes??? my opinion DONT ATTACK MEEEEE...... :(
 
 -------- INTERESTS !
 
